@@ -2,15 +2,15 @@
 
 ## Who pays the bills?
 
-Who provides the profits---these nice little profits of 20, 100, 300, 1,500, and 1,800 per cent? We all pay them---in taxation. We paid the bankers their profits when we bought Liberty Bonds at $100 and sold them back at $84 or $86 to the bankers. These bankers collected $100 plus. It was a simple manipulation. The bankers control the security marts. It was easy for them to depress the price of these bonds. Then all of us---the people---got frightened and sold the bonds at $84 or $86. The bankers bought htem. Then these same bankers stimulated a boom and government bonds went to par---and above. Then the bankers collected their profits.
+Who provides the profits---these nice little profits of 20, 100, 300, 1,500, and 1,800 per cent? We all pay them---in taxation. We paid the bankers their profits when we bought Liberty Bonds at $100 and sold them back at $84 or $86 to the bankers. These bankers collected $100 plus. It was a simple manipulation. The bankers control the security marts. It was easy for them to depress the price of these bonds. Then all of us---the people---got frightened and sold the bonds at $84 or $86. The bankers bought them. Then these same bankers stimulated a boom and government bonds went to par---and above. Then the bankers collected their profits.
 
 But the soldier pays the biggest part of the bill. If you don't believe this, visit the American cemeteries on the battlefields abroad. Or visit any of the veterans' hospitals in the United States. On a tour of the country, in the midst of which I am at the time of this writing, I have visited eighteen government hospitals for veterans. In them are a total of about 50,000 destroyed men---men who were the pick of the nation eighteen years ago. The very able chief surgeon at the government hospital at Milwaukee, where there are 3,800 of the living dead, told me that mortality among veterans is three times as great as among those who stayed at home.
 
-Boys with a normal viewpoint were taken out of the fields and offices and factories and classrooms and put into the ranks. There they were remolded; they were made over; they were made to "about face"; to regard murder as the order of the day. They were put shoulder to shoulder and, through mass psychology, they were entirely changed. We used them for a couple of years and trianed them to think nothing at all of killing or of being killed.
+Boys with a normal viewpoint were taken out of the fields and offices and factories and classrooms and put into the ranks. There they were remolded; they were made over; they were made to "about face"; to regard murder as the order of the day. They were put shoulder to shoulder and, through mass psychology, they were entirely changed. We used them for a couple of years and trained them to think nothing at all of killing or of being killed.
 
 Then, suddenly, we discharged them and told them to make another "about face"! This time they had to do their own readjusting, sans mass psychology, sans officers' aid and advice, sans nation-wide propaganda. We didn't need them any more. So we scattered them about without any "three-minute" or "Liberty Loan" speeches or parades. Many, too many, of these fine young boys are eventually destroyed, mentally, because they could not make that final "about face" alone.
 
-In the government hospital at Marion, Indiana, 1,800 of these boys are in pens! Five hundred of them in a barracks with steel bars and wires all around outside the buildings and on the porches. These already have been mentally destroyed. These boys don't evne look like human beings. Oh, the looks on their faces! Physically, they are in good shape; mentally, they are gone.
+In the government hospital at Marion, Indiana, 1,800 of these boys are in pens! Five hundred of them in a barracks with steel bars and wires all around outside the buildings and on the porches. These already have been mentally destroyed. These boys don't even look like human beings. Oh, the looks on their faces! Physically, they are in good shape; mentally, they are gone.
 
 There are thousand and thousands of these cases, and more and more are coming in all the time. The tremendous excitement of the war, the sudden cutting off of that excitement---the young boys couldn't stand it.
 
@@ -28,7 +28,7 @@ So, by developing the Napoleonic system---the medal business---the government le
 
 In the World War, we used propaganda to make the boys accept conscription. They were made to feel ashamed if they didn't join the army.
 
-So vicious was this war propaganda that even God was brought into it. With few exceptions our clergyment joined in the clamor to kill, kill, kill. To kill the Germans. God is on our side... it is His will that the Germans be killed.
+So vicious was this war propaganda that even God was brought into it. With few exceptions our clergymen joined in the clamor to kill, kill, kill. To kill the Germans. God is on our side... it is His will that the Germans be killed.
 
 And in Germany, the good pastors called upon Germans to kill the allies... to please the same God. That was part of the general propaganda, build up to make people war conscious and murder conscious.
 

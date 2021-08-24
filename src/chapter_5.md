@@ -4,7 +4,7 @@
 
 I am not such a fool as to believe that war is a thing of the past. I know the people do not want war, but there is no use in saying we cannot be pushed into another war.
 
-Looking back, Woodrow Wilson was reelected president in 1916 on a platform that he had "kept us out of war" ad on th eimplied promise that he would "keep us out of war." Yet, five months later, he asked Congress to declare war on Germany.
+Looking back, Woodrow Wilson was reelected president in 1916 on a platform that he had "kept us out of war" and on the implied promise that he would "keep us out of war." Yet, five months later, he asked Congress to declare war on Germany.
 
 In that five-month interval the people had not been asked whether they had changed their minds. The 4,000,000 young men who put on uniforms and marched or sailed away were not asked whether they wanted to go forth to suffer and die.
 
@@ -16,7 +16,7 @@ An allied commission, it may be recalled, came over shortly before the war decla
 
 > "There is no use kidding ourselves any longer. The cause of the allies is lost. We now owe you (American bankers, American munitions makers, American manufacturers, American speculators, American exporters) five or six billion dollars.
 >
-> "If we lose (and without the help fo the United States we must lose) we, England, France and Italy, cannot pay back this money... and Germany won't.
+> "If we lose (and without the help of the United States we must lose) we, England, France and Italy, cannot pay back this money... and Germany won't.
 >
 > "So...."
 
